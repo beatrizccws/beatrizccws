@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @beatrizccws
 - 👀 I’m interested in learn 
 - 🌱 I’m currently learning technology 
-- 💞️ I’m looking to collaborate on actions such as delivering food to the homeless
 - 📫 How to reach me: beatrizcarla1512@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I know how to knit and speak a little English ✨
